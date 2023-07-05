@@ -1,1 +1,1 @@
-# curriculumVitae
+https://beluga2810.github.io/curriculumVitae/CV
